@@ -1,0 +1,1 @@
+# Ahojdá, já jsem Jirka a dneska si společně s Gejmrem zahrajeme Bed wars, protože už jsme je dlouho nehráli a od posledně přidali nové mapy
